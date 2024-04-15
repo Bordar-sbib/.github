@@ -1,3 +1,4 @@
+![1000033942](https://github.com/Bordar-sbib/.github/assets/153320483/77697587-bd01-46f7-b779-1fe4bff35f99)
 Aliporfosor ## Hi there 👋
 
 <!--
